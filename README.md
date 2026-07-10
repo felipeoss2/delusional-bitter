@@ -1,2 +1,2 @@
 # delusional-bitter
-random stuff homla
+random stuff
